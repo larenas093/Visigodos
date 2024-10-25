@@ -1,4 +1,4 @@
-##Testimonios##
+## Testimonios
 
 Consta, por testimonios fidedignos de aquella época, la existencia de magníficas
 iglesias en España, desde los últimos años del siglo VI hasta la invasión sarracena:

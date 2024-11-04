@@ -30,7 +30,7 @@ En la localidad de Baños de Cerrato a 7km de Palencia
 
 
 
-
+95.**Alejandro Bayo Gómez (Palomares del Río)**
 
 
 

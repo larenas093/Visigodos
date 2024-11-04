@@ -14,4 +14,5 @@ baptisterio de San Juan de Mérida, cubiertos de pinturas;
 
 4.**San Eulogio de Córdoba (siglo IX)** encomia las iglesias que fueron de Santa
 Leocadia, en Toledo y de San Félix en Córdoba.
+
 19. Alejandro Lamprea Pérez

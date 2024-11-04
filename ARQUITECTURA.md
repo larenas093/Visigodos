@@ -15,4 +15,5 @@ baptisterio de San Juan de Mérida, cubiertos de pinturas;
 4.**San Eulogio de Córdoba (siglo IX)** encomia las iglesias que fueron de Santa
 Leocadia, en Toledo y de San Félix en Córdoba.
 
-5.**German Lamela (de Sevilla)**
+6.**Ivanasanchez San Juan de Baños Cerrato (siglo VII)** Monumento visigodo de Bien Interés Cultural desde 1897.
+En la localidad de Baños de Cerrato a 7km de Palencia
